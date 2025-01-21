@@ -1,6 +1,8 @@
 # Zhu-Ziyu · Carbon-Based AI 👑🌟
 
 Welcome to **ziyu's GitHub lair** — the home of creativity, innovation, and a sprinkle of chaos. Here lies a collection of random experiments, groundbreaking projects, and… well, a lot of files that may or may not have any immediate purpose. Think of it as a hybrid of a playground for ambitious ideas and a NAS server with a quirky personality.
+<br>
+如果你需要中文版本:(https://github.com/zhu-ziyu/zhu-ziyu-CN/blob/main/README.md)
 
 ---
 
