@@ -21,7 +21,7 @@ Here are Ziyu's realms of influence:
 - ✈️ **WindForge Lab**: Transforming the aviation and FPV drone industry with custom, high-performance aircraft.  
   Website: [WindForgeLab.com](https://www.WindForgeLab.com)
 
-- 🌈 **AuraFlameSky**: A creative think tank bridging technology and imagination to craft unforgettable experiences.  
+- 🌈 **AuraFlameSky**: A future project with a metaverse and a large worldview.
   Website: [AuraFlameSky.com](https://www.AuraFlameSky.com)
 
 **Fun Fact:** Ziyu is often hailed as the "咕咕大王 (King of Procrastination)" — known for making bold plans and meticulously executing them... eventually. (😏)
