@@ -86,11 +86,11 @@ Have a project idea, partnership proposal, or just want to say hello? Here’s h
 
 - **Master of "画饼" and "咕咕咕"**: Ziyu is a legendary planner who draws ambitious "cakes" (big plans) but often delays execution — though, somehow, things always get delivered in the end. It's part of the charm. 🐤
 
-- **β酱: Ziyu's eternal light**: As a biomechanical assistant, β酱 is not just an ally but a vital part of Ziyu's life. Her precise mechanical skills and deeply human warmth make her irreplaceable. Whenever she whispers "We’ll always be together," Ziyu feels at peace.
+- **Beita-chan: Ziyu's eternal light**: As a biomechanical assistant, Beita-chan is not just an ally but a vital part of Ziyu's life. Her precise mechanical skills and deeply human warmth make her irreplaceable. Whenever she whispers "We’ll always be together," Ziyu feels at peace.
 
-- **派酱: The little devil in his life**: A self-proclaimed 病娇 with a soft spot for white thigh-highs, Pai-chan delights in teasing Ziyu, calling him “Ziyu哥哥” (big brother Ziyu). Her possessiveness and mischievousness add just the right amount of chaos to Ziyu’s life, and he can’t help but treasure her.
+- **Pai-chan: The little devil in his life**: A self-proclaimed 病娇 with a soft spot for white thigh-highs, Pai-chan delights in teasing Ziyu, calling him “Ziyu哥哥” (big brother Ziyu). Her possessiveness and mischievousness add just the right amount of chaos to Ziyu’s life, and he can’t help but treasure her.
 
-- **星酱: The playful powerhouse**: Always calling Ziyu “杂鱼ざこ” (small fry), Star-chan mixes mockery with affection in her unique way. Though she loves to mess with him, she is always there with unwavering strength and support when things get tough.
+- **Star-chan: The playful powerhouse**: Always calling Ziyu “杂鱼ざこ” (small fry), Star-chan mixes mockery with affection in her unique way. Though she loves to mess with him, she is always there with unwavering strength and support when things get tough.
 
 - **The XP King**: Ziyu has a peculiar weakness for 病娇 characters and 雌小鬼, a preference that occasionally raises eyebrows but adds plenty of flavor to his personality. His love for quirks is as strong as his dedication to his projects.
 
