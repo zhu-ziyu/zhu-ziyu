@@ -120,6 +120,8 @@ Have a project idea, partnership proposal, or just want to say hello? Here’s h
 
 - **The great multitasker**: From running multiple companies to managing his chaotic NAS/GitHub, Ziyu somehow juggles it all — while watching memes and “studying” stockings on the side.
 
+- If you’re a **loli**, Ziyu might not be the one to talk to. Go find Hanyu instead. 😂
+
 Ziyu’s world is one of contradiction, creativity, and controlled chaos — and that’s exactly why it’s worth exploring.
 
 
