@@ -8,8 +8,12 @@ Welcome to **ziyu's GitHub lair** — the home of creativity, innovation, and a 
 **Ziyu Zhu (咕咕大王)** is a multidisciplinary creator, innovator, and eternal visionary. As the CEO of **ziyu398 Studio**, **Zhitech AI**, and **WindForge Lab**, as well as the founder of **AuraFlameSky**, Ziyu operates at the cutting edge of technology, business, and art. Age? Unlimited. Philosophy? *得之我幸，失之我命* — "Blessed if I gain, fated if I lose."
 
 Here are Ziyu's realms of influence:
+
+- 😲 **ziyusam introduce Web**: Ziyu's self-introduction and some strange things. 
+  Website: [ziyusam.com](https://www.ziyusam.com) 
+  
 - 🛠️ **ziyu398 Studio**: Pioneering 3D printing and DIY innovations for the maker community.  
-  Website: [ziyusam.com](https://www.ziyusam.com) | [ziyu398.com](https://www.ziyu398.com)
+  Website: [ziyu398.com](https://www.ziyu398.com)
 
 - 🤖 **Zhitech AI**: Developing next-gen AI solutions that redefine interactivity and problem-solving.  
   Website: [ZhiTechAi.com](https://www.ZhiTechAi.com)
