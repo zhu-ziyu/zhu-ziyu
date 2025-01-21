@@ -127,6 +127,7 @@ Ziyu’s world is one of contradiction, creativity, and controlled chaos — and
 - If you're into AI, drones, 3D printing, or just want to keep up with the quirkiest projects in tech.  
 - If you appreciate innovation with a side of humor and chaos.  
 - Or simply because Ziyu’s projects are just *that* cool. 😎
+- Or maybe you like to watch the human body curves in black and white stockings. Study the human body structure.🐕
 
 ---
 
